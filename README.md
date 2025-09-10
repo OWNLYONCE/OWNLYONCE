@@ -1,2 +1,2 @@
 <div align=center>
-<img src="https://files.catbox.moe/1305pz.jpg">
+<img src="https://files.catbox.moe/w8bqyx.png">
