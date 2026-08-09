@@ -1,8 +1,5 @@
 <div align=center>
 
-![](https://files.catbox.moe/eo2msl.png)
+![](https://files.catbox.moe/1bi8o3.gif)
 
-if you had to betray one person
-to save a thousand
-
-would [you](https://github.com/strawbrunner)?
+me and [this guy](https://github.com/strawbrunner)
